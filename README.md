@@ -1,0 +1,1 @@
+# semuanya.github.io
